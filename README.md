@@ -241,4 +241,4 @@ LEGO Star Wars: The Skywalker Saga is available as a full free version, ensuring
 Download LEGO Star Wars: The Skywalker Saga today and embark on your epic adventure in the galaxy!
 
 ---
-**Last updated:** 2026-10-27 21:45:07 UTC
+**Last updated:** 2026-10-28 00:56:10 UTC
